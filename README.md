@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **shivamshivhare666@gmail.com**
 
-- 📄 Know about my experiences [RESUME](https://drive.google.com/file/d/1ZSWXIcI8S_smGRl9gzjjquLysi7rOZ-8/view?usp=drive_link)
+- 📄 Know about my experiences [RESUME](https://drive.google.com/file/d/1fHEc-dGyl1Fl3ifCqyeXNftbOGejdCka/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
